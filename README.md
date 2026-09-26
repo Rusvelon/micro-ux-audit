@@ -12,7 +12,7 @@ A focused conversion review for one landing page, pricing page, checkout, or onb
 
 **USD 5, one screen / one URL.**
 
-[Pay securely with PayPal — USD 5](https://www.paypal.com/paypalme/brigetteawadeuwu/5)
+[Pay securely with PayPal — USD 5](https://www.paypal.com/paypalme/brigetteawadeuwu/5USD)
 
 ## How it works
 
